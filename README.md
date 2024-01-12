@@ -1,3 +1,3 @@
 # Kyra | She/her
-## Hi, my name is Kyra and I am trans mtf.
-### If you would like to speak with me please visit my socials below or email me at kcdatemasch@gmail.com
+## Hi, my name is Kyra, I am a student who wants to learn how to become a game dev.
+### If you would like to speak with me please email me at kcdatemasch@gmail.com
